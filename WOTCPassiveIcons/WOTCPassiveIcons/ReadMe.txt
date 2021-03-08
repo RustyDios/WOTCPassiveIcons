@@ -1,5 +1,5 @@
 ﻿You created an XCOM 2 Mod Project! With help from Iridar and RoboJumper and the XCOM2 Modding Discord!
-https://steamcommunity.com/sharedfiles/filedetails/?id=1859762491 My Steam ID
+https://steamcommunity.com/sharedfiles/filedetails/?id=1859762491 My Steam ID..
 https://steamcommunity.com/sharedfiles/filedetails/?id=2170324254 Core Collection Edition
 
 XCOM2 MOD PROJECT THAT REQUIRES;
